@@ -1,0 +1,2 @@
+# CBNU_AI_Ex_30
+ CBNU INDAI
